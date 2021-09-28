@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @ondineberland
 - 👀 I’m interested in Economics (especially environmental and consumer econ)
 - 🌱 I’m currently a PhD student
-- 📫 How to reach me: ondine.berland@inrae.fr
+- 📫 Reach me at: ondine.berland@inrae.fr
